@@ -9,4 +9,5 @@ links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.web
   <a href=https://nazmiuu3.straw.page>strawpage</a> ⠀ <a href=https://nazumi.atabook.org/>atabook</a> ⠀ <a href=https://rentry.co/nazum1>rentry</a>
 
 <p align="center">
-its not my fault, he's a loser 
+its not my fault, he's a loser
+im addicted to sanji 🙄🙄
