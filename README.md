@@ -7,9 +7,3 @@ links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.web
 
 <p align="center">
   <a href=https://nazmiuu3.straw.page>strawpage</a> ⠀ <a href=https://nazumi.atabook.org/>atabook</a> 
-
-<p align="center">
-it's not my fault, he's a loser
-    
-<p align="center"> 
-im not addicted to sanji 🙄🙄
